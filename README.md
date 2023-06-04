@@ -15,3 +15,5 @@ https://drive.google.com/drive/folders/1u8hQQN02TPB18MY6XBOKGfIM7P0ozpWQ
 
 Video Final: 
 https://www.youtube.com/watch?v=XlTTcOAmQMI
+
+Documentacion mas especifica: https://docs.google.com/document/d/1-lL3HrW0Mx6XDo8U_FgSYr0J2w7S_Mu7vQu88uEE8QA/edit?usp=sharing
